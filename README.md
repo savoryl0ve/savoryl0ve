@@ -1,5 +1,7 @@
- /ᐠ - ˕ -マ Ⳋ Check out my pronouns page ! 𓂃ෆ˚!
- 
+**/ᐠ - ˕ -マ Ⳋ**
+
+**Check out my pronouns page!𓂃ෆ˚!**
+ ![Image](https://github.com/user-attachments/assets/9163a00e-7f4a-4163-a0a0-fd1b113ec02c)
 
 <!--
 **savoryl0ve/savoryl0ve** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

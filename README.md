@@ -16,3 +16,5 @@
 • Pedophiles
 • People over 25
 • Tr*mp supporters
+![Image](https://github.com/user-attachments/assets/1fed7345-7532-462f-9bd3-d156bffd57f8)
+*hits you with yuri beam*

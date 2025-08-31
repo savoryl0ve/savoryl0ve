@@ -5,6 +5,7 @@
 
 ## *Call me Lorrie, Jill or Bread ;3c*
 ## My Main Fandoms;
+★ Dream game / Frozen Soul
 ★ alnst
 ★ forsaken 
 ★crk

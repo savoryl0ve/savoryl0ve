@@ -7,7 +7,7 @@
 ## My Main Fandoms;
 ★ Dream game / Frozen Soul
 ★ alnst
-★ forsaken 
+
 ★crk
 ## DNI LIST
 • Proshippers / Darkshippers

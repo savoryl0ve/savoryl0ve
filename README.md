@@ -3,16 +3,16 @@
 " My Clematis . "
 ## **Check out my ***pronouns*** page for more info!𓂃ෆ˚!**
 
-## *Call me Lorrie, Jill or Bread ;3c*
+## *Haiii it's me Lorrie !!;3c*
 ## My Main Fandoms;
 ★ Dream game / Frozen Soul
-★ alnst
-
-★crk
+★ Alnst
+★ Mcyt
+★ Crk
 ## DNI LIST
 • Proshippers / Darkshippers
 • Anti-yumes
-• Alastor fans pmo
+• Boundary Breakers
 • Lolicons
 • Pedophiles
 • People over 25
